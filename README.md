@@ -36,5 +36,7 @@
 >
 > a joyful spirit in a thoughtful face,
 
-出生贵族，平静谦卑，歌颂智力，心灵淳朴，虽是几百年前前辈的诗，但恰如其分的表达了对雪莱的赞美。在玛丽和雪莱第一次私奔又返回英国后，玛丽在雪莱的指导下学拉丁语、希腊语，也就是在那段时间，玛丽阅读了**Petrarca的诗集。**
+出生贵族，平静谦卑，歌颂智力，心灵淳朴，虽是几百年前前辈的诗，但恰如其分的表达了对雪莱的赞美。在玛丽和雪莱第一次私奔又返回英国后，玛丽在雪莱的指导下学拉丁语、希腊语，也就是在那段时间，玛丽阅读了**Petrarca**的诗集，当时的情况是这样的：
+
+She did not see in hese studies, as did the first Mrs. Shelley, a rather boring game, but an extension of her enjoyment. The greatest charm of literary
 
