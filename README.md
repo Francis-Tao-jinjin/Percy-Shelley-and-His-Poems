@@ -52,5 +52,7 @@
 >
 > _The pressure of the thrilling hand._
 
+> 无言的吻，无形的凝视，别人耳目而闪闪躲躲的微笑，然以立誓献身于你，而这赠予是神圣的
+
 
 
