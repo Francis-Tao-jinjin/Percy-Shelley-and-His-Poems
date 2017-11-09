@@ -6,5 +6,25 @@
 
 想象力，一旦开始有了将文字变成脑海中的画面的习惯，一切都变的豁然开朗，雪莱的诗常给我这样一种感觉，就像坠入邓布利多校长办公室里的冥想盆，掉进一个记忆和幻想糅杂在一起的空间，身在其中的时候忘记盆外的世界，一旦结束有觉的虚无缥缈。为了更多的了解他的诗，莫洛亚的《雪莱传》（_Ariel: The Life of Shelley by Andre Maurois_）成为一本很棒的参考书目，这本书无关雪莱诗歌的分析解读，只是叙述雪莱坎坷的一生，但有的时候，了解诗人便是了解诗。
 
-在[古滕堡计划](http://www.gutenberg.org/)中可以阅读雪莱所有的诗，其中雪莱逝世后的第一本诗集是特别的，由雪莱的妻子玛丽·雪莱于1924年整理出版。
+在[古滕堡计划](http://www.gutenberg.org/)中可以阅读雪莱所有的诗，其中雪莱逝世后的第一本诗集是特别的，由雪莱的妻子玛丽·雪莱于1824年整理出版。在那一版的前言中，玛丽以此开头：
+
+> In nobil sangue vita umile e queta,
+>
+> Ed in alto intelletto un puro core
+>
+> Frutto senile in sul giovenil fibre,
+>
+> E in aspetto pensoso anima lieta.—PETRARCA.
+
+这是一小段取自文艺复兴时期的意大利诗人 **Francesco Petrarca **的意大利文诗集 _Canzoniere _的第 215 小结，经过查看原文，玛丽摘抄下的这段诗句有部分笔误
+
+> In nobil sangue vita humile et queta
+>
+> Et in alto intellecto un puro core,
+>
+> Frutto senile in sul giovenil fiore
+>
+> E ’n aspetto pensoso anima lieta
+
+
 
