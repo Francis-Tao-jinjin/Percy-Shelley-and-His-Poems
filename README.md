@@ -40,5 +40,5 @@
 
 > She did not see in hese studies, as did the first Mrs. Shelley, a rather boring game, but an extension of her enjoyment. The greatest charm of literary culture is that it humanizes love. Catullus, Theocritus, and Petrarch united to render more exquisite our lover's kisses. Shelley, with admiration for her strength of character, and was delighted to consider her as much superior to himself.
 
-
+在玛丽看来，文学修养的最大魅力在于它使爱情变的更富有人性，将先贤的作品汇集于心，能使这对情人的亲吻变的更加高雅。如果不提，大概人们都不会想到《科学怪人－弗兰肯斯坦》便是日后出自这位好学又修养的雪莱夫人。
 
