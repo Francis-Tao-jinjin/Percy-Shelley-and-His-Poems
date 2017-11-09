@@ -36,5 +36,5 @@
 >
 > a joyful spirit in a thoughtful face,
 
-出生贵族，
+出生贵族，平静谦卑，歌颂智力，心灵淳朴。
 
