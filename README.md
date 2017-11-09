@@ -1,4 +1,10 @@
-# Percy Shelley and His poems
+# Percy Shelley and His Poems
 
-This file file serves as your book's preface, a great place to describe your book's content and ideas.
+ 之前从没有真正深入阅读过英文的诗歌，所以从雪莱的诗是一个很巧合的开始
+
+
+
+十月份的一天晚上，不知为什么心中萌生出想要阅读英文诗歌的念头，挑一个吧，之前并不了解英国的诗歌文学具体如何，便从众多诗人中挑了名字颇为优美的 “[珀西·比希·雪莱](https://zh.wikipedia.org/zh-hans/%E7%8F%80%E8%A5%BF%C2%B7%E6%AF%94%E5%B8%8C%C2%B7%E9%9B%AA%E8%8E%B1)”
+
+
 
