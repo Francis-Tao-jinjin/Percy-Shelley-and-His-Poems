@@ -51,8 +51,14 @@
 > _The whispered thought of hearts allied,_
 >
 > _The pressure of the thrilling hand._
-
+>
 > 无言的吻，无形的凝视，别人耳目而闪闪躲躲的微笑，然以立誓献身于你，而这赠予是神圣的
+
+自1822年雪莱逝世后，玛丽一致致力于整理、发表出版雪莱生前未公开的作品，若是没有她的努力，许多雪莱的诗可能现在都不会看到。
+
+
+
+
 
 
 
